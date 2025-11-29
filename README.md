@@ -9,4 +9,3 @@ I enjoy jet skiiing in my free time
 My goal for 2026 is to land a job in the data field.
 My Linkedin - https://www.linkedin.com/in/isam-abughazaleh-578105285/
 My email - samabugha@gmail.com
-My portfolio-
